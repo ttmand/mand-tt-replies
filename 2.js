@@ -4,6 +4,19 @@
 
 
 
+
+
+
+
+472883
+It is no longer possible.
+22/5/2026
+
+472883
+It is a glitched version of the onyx paint, and was done by applying onyx paint, then saving in the Classic garage.
+22/5/2026
+
+
 472815
 I would recommend you don't click on any unknown links. It's important to be vigilant in situations like this.
 
