@@ -8,6 +8,32 @@
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+472888
+There are currently 26 moderators:
+
+GM9: purup, bbc
+GM6: Dalek-Buster, captainahvong, foxter, george8888, QuickNinja, rhak
+GM4: Spiros04, Lichen, TripleStryke, Redwind
+GM3: newthy32, Kerosene
+GM2: BlackHalo, NelFusion, Amplitude, SavageAimbot, onion
+GM1: Giraffe, PurpleGnome, draculous, SoulPanda, AceHawk, Gentleman, Mandilindors
+22/5/2026
+
 472883
 It is no longer possible.
 22/5/2026
