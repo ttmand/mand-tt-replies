@@ -19,7 +19,9 @@
 
 
 
-
+472898
+Only 1 dimitrium can appear in a round.
+25/5/2026
 
 472888
 That's just the current situation - there isn't currently a need to have GM5s. Also their responsibilities are largely similar to that of a GM4.
