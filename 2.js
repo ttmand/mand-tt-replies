@@ -13,7 +13,10 @@
 
 
 
-
+472375
+@ISAH You have bumped this thread. Bumping means posting in a thread which has had no replies in the last 7 days, and it's against TankTrouble rules. Please refrain from doing this in future :)
+Requesting Lock
+26/5/2026
 
 472450
 @DODOBOY You have bumped this thread. Bumping means posting in a thread which has had no replies in the last 7 days, and it's against TankTrouble rules. Please refrain from doing this in future :)
