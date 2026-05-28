@@ -11,7 +11,9 @@
 
 
 
-
+468500
+Click your tank, and click the settings icon. You can then change your password. You will also need to confirm your current password before clicking "Update Account"
+28/5/2026
 
 472375
 @ISAH You have bumped this thread. Bumping means posting in a thread which has had no replies in the last 7 days, and it's against TankTrouble rules. Please refrain from doing this in future :)
