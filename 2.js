@@ -4,12 +4,40 @@
 
 
 
+472849
+@PROKINGZIA You posted in a thread that has had no replies for 7 days or more. This is called "bumping" and is against TankTrouble rules. Please refrain from doing this in future.
+Requesting Lock
+29/5/2026
 
+472837
+@PROKINGZIA You posted in a thread that has had no replies for 7 days or more. This is called "bumping" and is against TankTrouble rules. Please refrain from doing this in future.
+Requesting Lock
+29/5/2026
 
+472750
+@PROKINGZIA You posted in a thread that has had no replies for 7 days or more. This is called "bumping" and is against TankTrouble rules. Please refrain from doing this in future.
+Requesting Lock
+29/5/2026
 
+472816
+@PROKINGZIA You posted in a thread that has had no replies for 7 days or more. This is called "bumping" and is against TankTrouble rules. Please refrain from doing this in future.
+Requesting Lock
+29/5/2026
 
+472820
+@PROKINGZIA You posted in a thread that has had no replies for 7 days or more. This is called "bumping" and is against TankTrouble rules. Please refrain from doing this in future.
+Requesting Lock
+29/5/2026
 
+472828
+@PROKINGZIA You posted in a thread that has had no replies for 7 days or more. This is called "bumping" and is against TankTrouble rules. Please refrain from doing this in future.
+Requesting Lock
+29/5/2026
 
+472812
+@PROKINGZIA You posted in a thread that has had no replies for 7 days or more. This is called "bumping" and is against TankTrouble rules. Please refrain from doing this in future.
+Requesting Lock
+29/5/2026
 
 468500
 Click your tank, and click the settings icon. You can then change your password. You will also need to confirm your current password before clicking "Update Account"
