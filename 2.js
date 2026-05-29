@@ -2,7 +2,26 @@
 
 
 
+469805
+May 2026 Statistics:
 
+1,348,906 tanks were destroyed. This is 258,258 less than April and is the lowest since I started collecting these statistics.
+
+529 threads were created. This is 185 more than April and is the highest since I started collecting statistics.
+
+4619 replies were posted. This is 1397 more than April and is the highest since I started collecting statistics.
+
+61,505 accounts were created, which is 262 less than April.
+
+36,823 guests were created, which is 10,481 more than April.
+
+So an all-time high for forum activity and all-time low for destruction. Though I would say both of these were unnatural and are connected.
+
+Account creation remains stable, though a lot more guests.
+
+Graphs:
+https://ttmand.github.io/general/stats.html
+29/5/2026
 
 472849
 @PROKINGZIA You posted in a thread that has had no replies for 7 days or more. This is called "bumping" and is against TankTrouble rules. Please refrain from doing this in future.
