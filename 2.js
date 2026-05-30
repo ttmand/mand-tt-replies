@@ -1,6 +1,14 @@
 
 
+473047
+The scrapyard is not almost at 4B. It is at 3.08B, so almost 3.1B
 
+It has completed 8% of the fourth billion, so it needs to do that 12.5 times to reach 4B.
+
+It has been 44 months since it reached 3B so if it continues at the average rate, it will reach 4B 550 months after it reached 3B, which is 45 years and 10 months.
+
+So it would reach 4B in July 2068. A long time away :)
+30/5/2026
 
 469805
 May 2026 Statistics:
