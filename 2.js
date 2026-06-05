@@ -1,5 +1,13 @@
 
 
+
+
+
+
+473174
+It hasn't yet been announced. A thread will probably be made in advance to confirm.
+6/5/2026
+
 473047
 The scrapyard is not almost at 4B. It is at 3.08B, so almost 3.1B
 
