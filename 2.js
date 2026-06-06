@@ -1,6 +1,8 @@
 
 
-
+473204
+IronVault gets player data directly from the game. As the account will no longer exist, there will be no information to display on IronVault.
+6/6/2026
 
 473190
 Untextured black paint is no longer obtainable, though you can buy Onyx Paint in the shop, which has a pattern. There is a very dark blue in the Winter Box.
