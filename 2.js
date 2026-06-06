@@ -2,11 +2,13 @@
 
 
 
-
+473190
+Untextured black paint is no longer obtainable, though you can buy Onyx Paint in the shop, which has a pattern. There is a very dark blue in the Winter Box.
+6/6/2026
 
 473174
 It hasn't yet been announced. A thread will probably be made in advance to confirm.
-6/5/2026
+5/6/2026
 
 473047
 The scrapyard is not almost at 4B. It is at 3.08B, so almost 3.1B
