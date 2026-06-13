@@ -1,3 +1,11 @@
+473355
+The only way to be a "beta tester" was to purchase the beta box during early BETA.
+13/6/2026
+
+473357
+Yes, any exploits that interfere with gameplay (including the speed hack) are banned.
+13/6/2026
+
 469805
 Congratulations kam! :)
 12/6/2026
