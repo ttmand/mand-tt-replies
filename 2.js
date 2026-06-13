@@ -1,3 +1,27 @@
+473139
+@RAMADAN123 You posted in a thread that has had no replies for 7 days or more. This is called "bumping" and is against TankTrouble rules. Please refrain from doing this in future.
+Requesting Lock
+13/6/2026
+
+473132
+@RAMADAN123 You posted in a thread that has had no replies for 7 days or more. This is called "bumping" and is against TankTrouble rules. Please refrain from doing this in future.
+Requesting Lock
+13/6/2026
+
+472463
+@RAMADAN123 You posted in a thread that has had no replies for 7 days or more. This is called "bumping" and is against TankTrouble rules. Please refrain from doing this in future.
+Requesting Lock
+13/6/2026
+
+472331
+@RAMADAN123 You posted in a thread that has had no replies for 7 days or more. This is called "bumping" and is against TankTrouble rules. Please refrain from doing this in future.
+Requesting Lock
+13/6/2026
+
+473360
+4
+13/6/2026
+
 473355
 The only way to be a "beta tester" was to purchase the beta box during early BETA.
 13/6/2026
