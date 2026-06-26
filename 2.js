@@ -1,3 +1,14 @@
+472544
+There is such a feature! Type "/i" and then the player name.
+So if you type:
+/iLaika
+You will no longer see messages from Laika. It resets when you refresh etc.
+26/06/2026
+
+473524
+Dimi farming and using alts to get achievements are allowed.
+25/06/2026
+
 473517
 That would be good :)
 24/6/2026
