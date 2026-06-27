@@ -1,3 +1,9 @@
+473445
+He does indeed! His username is now "onion".
+However, please don't post in threads that have been inactive for a week or more - this is called bumping, and we have a rule against it :)
+Requesting Lock
+27/06/2026
+
 472544
 There is such a feature! Type "/i" and then the player name.
 So if you type:
