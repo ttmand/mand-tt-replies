@@ -1,3 +1,7 @@
+473554
+This type of farming is currently a Grey Area which is being addressed as part of the ongoing Reformation by the Moderation Team.
+28/06/2026
+
 473553
 If you want to verify your main account (if you can still access it), you can still change the email in account settings.
 28/06/2026
