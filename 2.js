@@ -1,3 +1,7 @@
+473553
+If you want to verify your main account (if you can still access it), you can still change the email in account settings.
+28/06/2026
+
 473445
 He does indeed! His username is now "onion".
 However, please don't post in threads that have been inactive for a week or more - this is called bumping, and we have a rule against it :)
