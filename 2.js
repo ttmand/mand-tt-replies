@@ -1,3 +1,18 @@
+469805
+TankTrouble Statistics for June 2026
+Good news is that destruction has increased (slightly). 1,375,385 tanks were destroyed in June, that's 26,479 more than May.
+516 threads were created in June, a slight decrease of 13.
+50,740 accounts were created, which is 10,765 less than May.
+3,204 replies were posted, which is a decrease of 1,415
+27,764 guests were created, which is a decrease of 9,059.
+So the only thing that has gone up is destruction. While it's not as much as the ~20M that was being destroyed every month back in 2018, at least it is improving!
+Graphs: https://ttmand.github.io/general/stats.html
+29/06/2026
+
+473502
+7 years and 358 days. Next week my tank will be 8 years old!
+29/06/2026
+
 473554
 This type of farming is currently a Grey Area which is being addressed as part of the ongoing Reformation by the Moderation Team.
 28/06/2026
