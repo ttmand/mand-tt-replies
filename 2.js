@@ -1,3 +1,7 @@
+473562
+Hopefully these weapons will be added to the game, and when they are, we might get new achievements!
+30/06/2026
+
 469805
 TankTrouble Statistics for June 2026
 Good news is that destruction has increased (slightly). 1,375,385 tanks were destroyed in June, that's 26,479 more than May.
