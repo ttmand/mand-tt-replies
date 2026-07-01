@@ -1,3 +1,7 @@
+469805
+Being in multiple servers simultaneously with an account is allowed.
+1/7/2026
+
 473574
 No one will be banned for inactivity. However, tanks with an unverified email are at risk of being automatically scrapped if they have been inactive.
 1/7/2026
