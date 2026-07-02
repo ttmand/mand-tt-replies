@@ -1,3 +1,8 @@
+473580
+Here's how it works - there are 4 "positions" on your tank that can have accessories. Every accessory is assigned a specific position. You can only have 1 accessory for each position. The positions are Front, Back, Turret, Barrel.
+In the code, there are also implications that in future they are considering a separate Tread accessory position.
+2/7/2026
+
 469805
 Being in multiple servers simultaneously with an account is allowed.
 1/7/2026
