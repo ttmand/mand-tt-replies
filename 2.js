@@ -1,3 +1,11 @@
+472727
+I also like that you can play as much or as little as you want, due to each round being short and having no impact beyond that round other than on your stats.
+15/7/2026
+
+473727
+I like the simplicity of the game, and the fact that it's completely unique. It feels "genuine", like it was created by the developers because they enjoyed it, unlike most games which are made for profit. And unlike most games, it isn't full of ads and popups, and constantly trying to sell you new items, etc. It's not overcomplicated. This is the only game I play, so admittedly I don't completely know what I am comparing it against. I've often seen people on the forum saying they wish TT had "battle passes", etc. I don't know what that is but I don't like the sound of it. It sounds like some sort of monetization. There are plenty games like that, which (in my opinion) are all very similar. Let's keep TankTrouble unique!
+15/7/2026
+
 473631
 Congratulations!
 7/7/2026
