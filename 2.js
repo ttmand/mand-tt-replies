@@ -1,3 +1,9 @@
+469805
+Goodbye RD13! 310 pages this time, that's better than RD12.
+For RD14, let's try to beat the record of 3216 pages :P (RD3)
+Also hi Kam :)
+17/07/2026
+
 472727
 I also like that you can play as much or as little as you want, due to each round being short and having no impact beyond that round other than on your stats.
 15/7/2026
