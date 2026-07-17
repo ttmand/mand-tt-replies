@@ -1,3 +1,24 @@
+473752
+Hello! Congratulations Redwind for hosting :)
+@CHIMABOY, welcome to the "first post in the RD" club :P
+3 minutes 22 seconds after the thread was made... you didn't beat my record!
+Actually, here's a leaderboard:
+1st: Mandilindors (7 seconds) (RD13)
+2nd: Age (11 seconds) (RD9)
+3rd: StraightPRIDE (21 seconds) (RD14)
+4th: [scrapped tank] (45 seconds) (RD2)
+5th: Amplitude (51 seconds) (RD11)
+6th: AceHawk (1 minute 12 seconds) (RD12)
+7th: NelFusion (1 minute 37 seconds) (RD8)
+8th: commander (1 minute 50 seconds) (RD6)
+9th: meemee (2 minutes 12 seconds) (RD7)
+10th: Ben314 (2 minutes 33 seconds) (RD4)
+11th: CHIMABOY (3 minutes 22 seconds) (RD14)
+12th: george8888 (7 minutes 26 seconds) (RD5)
+13th: [scrapped tank] (1 hour 34 minutes 20 seconds) (RD1)
+14th: tennisballs (11 days 16 hours 21 minutes 29 seconds) (RD3)
+17/07/2026
+
 469805
 Goodbye RD13! 310 pages this time, that's better than RD12.
 For RD14, let's try to beat the record of 3216 pages :P (RD3)
